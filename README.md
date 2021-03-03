@@ -1,4 +1,4 @@
-# 机场节点列表
+# 2021目前所有白嫖机场列表
 https://juzicloud.net/ 桔子云,注册送三个月10G流量
 
 http://www.wycloud.cloud/ 网抑云，注册送100G2天流量
